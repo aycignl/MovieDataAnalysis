@@ -1,2 +1,1 @@
-Related hashtags were selected from  
-** url: http://hashtagify.me/ . **
+Related hashtags were selected from ** url: http://hashtagify.me/ . **
